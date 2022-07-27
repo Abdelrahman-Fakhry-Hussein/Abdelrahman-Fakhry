@@ -1,0 +1,1 @@
+An aspiring student at faculty of Computer and Information Science, Ain Shams University, seeking to empower my knowledge in machine learning, deep learning, and data science. I am looking forward to building experience, doing real projects and models for various industries, in addition to enhance my non-technical skills.
